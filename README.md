@@ -1,2 +1,0 @@
-# Derece-tepe-
-Derece tepe 
